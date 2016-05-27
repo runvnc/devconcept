@@ -12,8 +12,12 @@ Polycarbonate (transparent, to limit interference with solar panels) vertical ac
 There are three 2 bedroom homes.  Each home is 18x26 feet and two stories.  Home contains space-saving systems such
 as murphy beds and pull-down wardrobes.  Built using SIPs (structural insulated panels), airtight with HRV/ERV.
 Wall-integrated television/computer screens.  Greywater recycling to reclaim shower and sink water via pump and 
-filtration.  Energy-efficient appliances such as microwave, induction cooktop, convection oven, super-insulated
+filtration to toilet tanks.  Energy-efficient appliances such as microwave, induction cooktop, convection oven, super-insulated
 refrigerator and freezer.  Self-closing smart glass kitchen cabinets and storage.
+
+Upper story can contain bedrooms, two doors on entrance to each bedroom.  One end of floor contains shared
+shower in center with doorways to either side , small half-baths that connect to bedrooms.  May use sink/faucet above
+toilets to save space.
 
 Geothermal heating/cooling system buried beneath plot.  HOA fees mainly for maintaining/harvesting food forests/gardening.
 
